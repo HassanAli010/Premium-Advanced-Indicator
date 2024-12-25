@@ -46,3 +46,5 @@ Using these indicators, you can identify actionable buy/sell signals when the OZ
 
 ---
 
+**SCRIPT FOR TEXT ME**
+**hassan7538216@gmail.com**
